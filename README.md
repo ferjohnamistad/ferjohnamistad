@@ -1,0 +1,1 @@
+- 🌱 I’m currently learning how to program. Please be kind to me.
